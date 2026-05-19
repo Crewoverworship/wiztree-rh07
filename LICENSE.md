@@ -1,4 +1,4 @@
-# 
+# instant Advanced SystemCare para PC scripts é o melhor Advanced SystemCare para PC scripts com limpeza de registro e limpeza de cache. Seguro, confiável e otimizado para máximo
 
 
 
